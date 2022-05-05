@@ -1,0 +1,1 @@
+# LAD-kdr-property-stuff
